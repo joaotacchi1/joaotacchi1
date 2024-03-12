@@ -7,7 +7,7 @@
 
 - 📫 Você me encontra através do e-mail **tacchijoaovitor@gmail.com**
 
-- 📄 Trabalho na empresa júnior da UFOP, Visão Tecnologia e Sistemas [https://www.linkedin.com/in/joao-tacchi-lanna/](https://www.linkedin.com/in/joao-tacchi-lanna/)
+- 📄 Você encontra minha trajetória em [https://www.linkedin.com/in/joao-tacchi-lanna/](https://www.linkedin.com/in/joao-tacchi-lanna/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
